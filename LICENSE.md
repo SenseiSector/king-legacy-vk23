@@ -1,4 +1,4 @@
-
+premium king legacy Scripts is the best king legacy Script, featuring unlimited stamina and speed. Safe and powerful for all your needs.
 
 
 
